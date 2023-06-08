@@ -54,6 +54,9 @@ PROJENİN LİNKLERİ
 
 https://www.tinkercad.com/things/aQX9BM0olWa-orumcekrobotdevre
 
+YOUTUBE VİDEOSU
+https://youtu.be/5UHVPlgqOZw
+
 
 
 PROJEYİ YAPANLAR
